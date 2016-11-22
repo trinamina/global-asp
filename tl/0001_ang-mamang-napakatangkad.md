@@ -1,4 +1,4 @@
-# Ang mamang napakatangkad
+# Ang Mamang Napakatangkad
 
 ##
 Masyadong maiksi ang asarol niya.
