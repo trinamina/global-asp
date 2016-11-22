@@ -1,4 +1,4 @@
-# Pagmasdan ang mga hayop
+# Pagmasdan ang mga Hayop
 
 ##
 Pagmasdan ang mga hayop.
