@@ -7,7 +7,7 @@ Maraming nararamdaman ang puso ko.
 Nakararamdam ako ng kasiyahan kapag kinukuwentuhan kami ni Lola sa gabi.
 
 ##
-Nakararamdam ako ng katatawanan kapag nakikipaglaro ako sa kaibigan ko.
+Nakararamdam ako ng kasiyahan kapag nakikipaglaro ako sa kaibigan ko.
 
 ##
 Nakararamdam ako ng kalungkutan kapag sinasabi ni Tatay na wala siyag pera.
