@@ -1,22 +1,22 @@
-# Si Kambing, Si Aso, at Si Baka
+# Si Kambing, si Aso, at si Baka
 
 ##
 Mabubuting magkakaibigan sina Kambing, si Aso, at si Baka. Isang araw, naglakbay sila sa isang taksi.
 
 ##
-Nang matapos ang paglalakbay nila, pinagbayad ng drayber ang mga ito. Nagbayad si Baka. 
+Nang matapos ang paglalakbay nila, pinagbayad ng tsuper ang mga ito. Nagbayad si Baka. 
 
 ##
 May sukli si Aso dahil hindi eksakto ang binayad niya
 
 ##
-Ibibigay na sana ng drayber ang sukli ni Aso nang tumakbo si Kambing nang hindi nagbabayad.
+Ibibigay na sana ng tsuper ang sukli ni Aso nang tumakbo si Kambing nang hindi nagbabayad.
 
 ##
-Nainis ang drayber. Nagmaneho siya paalis nang hindi binibigay ang sukli ni Aso.
+Nainis ang tsuper. Nagmaneho siya paalis nang hindi binibigay ang sukli ni Aso.
 
 ##
-Iyan ang dahilan kung bakit hanggang ngayon, tumatakbo si Aso papunta sa kotse para silipin at hanapin ang drayber na may utang sa kanya.
+Iyan ang dahilan kung bakit hanggang ngayon, tumatakbo si Aso papunta sa kotse para silipin at hanapin ang tsuper na may utang sa kanya.
 
 ##
 Tinatakbuhan ni Kambing ang tunog ng kotse. Natatakot siyang ma-aresto dahil hindi siya nagbayad.
