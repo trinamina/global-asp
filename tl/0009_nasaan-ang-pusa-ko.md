@@ -1,16 +1,16 @@
-# Nasaan ang pusa ko?
+# Nasaan ang Pusa Ko?
 
 ##
-Asan ang pusa ko?
+Nasaan ang pusa ko?
 
 ##
 Nasa ilalim ba ng kama?
 
 ##
-Nasa ibabaw ba ng cabinet?
+Nasa ibabaw ba ng aparador?
 
 ##
-Nasa likod ba ng sofa?
+Nasa likod ba ng supa?
 
 ##
 Nasa tabi ba ng basurahan?
@@ -19,10 +19,10 @@ Nasa tabi ba ng basurahan?
 Nasa loob kaya ng basket?
 
 ##
-O sa labas ng bahay?
+O nasa labas ng bahay?
 
 ##
-Andito lang pala!
+Nandito lang pala!
 
 ##
 * License: [CC-BY-NC]
