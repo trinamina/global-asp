@@ -1,4 +1,4 @@
-# Ano isusuot ko sa iskul?
+# Ano ang Isusuot ko sa Paaralan?
 
 ##
 Mahaba ang damit na ito.
