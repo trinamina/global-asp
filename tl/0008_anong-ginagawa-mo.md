@@ -1,7 +1,7 @@
-# Anong ginagawa mo?
+# Ano'ng Ginagawa Mo?
 
 ##
-Kumakanta ako.
+Umaawit ako.
 
 ##
 Kumakaway siya.
@@ -22,7 +22,7 @@ Sinasagot ko siya.
 Nakikinig siya.
 
 ##
-Anong ginagawa mo?
+Ano'ng ginagawa mo?
 
 ##
 * License: [CC-BY]
